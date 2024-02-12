@@ -1,1 +1,0 @@
-# JoseMiguelAmodia.github.io
